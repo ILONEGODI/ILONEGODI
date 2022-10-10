@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ILONEGODI
+- 👀 I’m interested in Ai
+- 🌱 I’m currently learning data analysis
+- 💞️ I’m looking to collaborate projects
+- 📫 How to reach me (https://www.linkedin.com/in/ahmed-mostafa-4a34ba1bb/)
